@@ -1,0 +1,1 @@
+# stangherlinenrico_A_verifica
